@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tylerproger
 - 👀 I’m interested in __запиздиться__
-- 🌱 I’m currently learning как __запиздиться__
+- 🌱 I’m currently learning how to __запиздиться__
 - 💞️ I’m looking to collaborate on __запиздиться__
 - 📫 How to reach me - __запиздиться__
